@@ -55,7 +55,7 @@
 
 <div align="center">
   
-  ### Made with ❤️ by Artist 
+  ### Made with ❤️ by Yan
   
   **© 2026 ˹ᴀʀᴛɪꜱᴛ ᴍᴜꜱɪᴄ˼. All rights reserved.**
   
