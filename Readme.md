@@ -41,7 +41,7 @@
 ---
 
 - **Telegram Channel**: [Artist bots](https://t.me/Artistbots)
-- **Support Group**: [Elevenyts Music](https://t.me/elevenytsmusic) 
+- **Support Group**: [Elevenyts Music](https://t.me/+iY_v1rcOP2NmMTNl) 
 
 ---
 
